@@ -1,5 +1,7 @@
 # MENGERJAKAN SOAL PERSAMAAN-
 
+Link Youtube : https://youtu.be/dU34oLW-crU 
+
 Nama : Indri Oktaviani Soal 1 
 
 A. Dasar Teori 
