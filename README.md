@@ -1,4 +1,4 @@
-# MENGERJAKAN SOAL PERSAMAAN-
+# MENGERJAKAN SOAL PERSAMAAN-Pengenalan Sintaks Python 
 
 Link Youtube : https://youtu.be/dU34oLW-crU 
 
